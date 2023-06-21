@@ -1,16 +1,51 @@
-### Hi there 👋
+### BEM vindo ao perfil
+👋 me chamo crislon consul
+ 
+- tenho 21 anos 
+ 
+ - estudo no colégio polivalente
+ 
+- 1 ano no ensino médio
+ 
+- aprendo com o alura
+ 
+- faço teatro 
 
-<!--
-**crislon21/crislon21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- sou ator
+-
+- ![](https://media.tenor.com/CQvMaCtllWIAAAAC/jeff-hardy-wwe.gif0)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+ 
+- sou acolíto na igreja Nossa SEnhora Do PIlar
+
+- participo no coral na igreja Nossa senhora Do pilar
+0
+- estou aprendendo tocar violão
+ 
+- JOgo volei
+- ![](https://media.tenor.com/GU6xvLOiYJEAAAAC/timoth%C3%A9e-carle-carle.gif)
+- 
+
+- estou aprendendo jogar xadrez
+ 
+- gosto de lasanha
+
+- meu aniverssário é dia 23 de setembro
+
+- sou signo de virgem
+  
+- gosto de rock
+- ![](https://media.tenor.com/xPvp9b-94J4AAAAC/rock-and-roll-rock-on.gif)
+  
+
+- prefiro comédia
+   
+- não gosto de pessoas má
+
+  ![](https://media.tenor.com/dVABlixY1lwAAAAC/jeffharry-thank-you.gif)
+
+
